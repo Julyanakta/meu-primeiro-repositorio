@@ -4,3 +4,4 @@ Novo teste adcionado
 estou compreendendo
 o sucesso é treinável
 muito treino
+mais leitura
