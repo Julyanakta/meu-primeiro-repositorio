@@ -6,9 +6,6 @@ o sucesso é treinável
 muito treino
 
 
-Correta
-
-hahaha
-
-
-hhlaaoaatggG
+Posso alterar?
+gbkty
+vOCÊ PODE ME AJUDAR?
